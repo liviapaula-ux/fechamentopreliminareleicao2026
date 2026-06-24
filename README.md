@@ -1,0 +1,1 @@
+# fechamentopreliminareleicao2026
